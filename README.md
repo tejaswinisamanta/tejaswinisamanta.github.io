@@ -1,1 +1,1 @@
-# Tejaswini Samanta's - Personal Website Portfolio
+# Tejaswini Samanta's Personal Website Portfolio
